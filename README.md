@@ -1,0 +1,1 @@
+# git ample public school
